@@ -17,7 +17,7 @@ Turn your neon lights on or off
 GeoChip for your car puton/off
 And many more options.
 
-If you search this script contact whit me for Discord and send prices dm: Aleexiito#5804
+If you search this script contact whit me for Discord and  i send prices dm: Aleexiito#5804
 
 
 
